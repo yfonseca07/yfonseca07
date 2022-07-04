@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yfonseca07
+- 👀 I’m interested in Learn and evolver my intellect.
+- 🌱 I’m currently learning on programming, in the CC50 course.
+- 💞️ I’m looking to collaborate on with everything I learn daily.
+- 📫 come meet me, I will be available to talk/debate any subject, so send me message.
